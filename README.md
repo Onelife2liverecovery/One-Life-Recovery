@@ -1,2 +1,2 @@
 # One-Life-Recovery
-Help with transportation anfssistance for any programs available and recovery services as well as referrals to the right agencies and also a tattoo shop or an initial startup business to help others
+Help with transportation and assistance with many programs offered from different agencies and the government . also available is recovery based services as well as referrals to the right agencies and lastly an initial startup business to help others
